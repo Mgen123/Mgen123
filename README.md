@@ -46,7 +46,7 @@ A Computer Science Student who want to become a Cybersecurity specialist someday
 
 - I love learning Nihonggo. Konnichiwa Minasan👋! Gen Desu🥰
 - I also love watching anime
-- Drinking coffee in my hobby sometimes it serves as my food for the entire day😁
+- Drinking coffee is my hobby sometimes it serves as my food for the entire day😁
 
 
 
