@@ -17,8 +17,9 @@ A Computer Science Student who want to become a Cybersecurity specialist someday
 ### Education
 
 
-Bachelor of Science in Computer Science at Fullbright College S.Y: 2023 - Present
-High School at Ipilan National High School S.Y:  2016  - 2022
+- Bachelor of Science in Computer Science at Fullbright College S.Y: 2023 - Present
+
+- High School at Ipilan National High School S.Y:  2016  - 2022
 
 ---
 
